@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything that excludes you
 - 📫 How to reach me :
 
-<!---
+---
 Yo, now you gon' start me from the top? Listen
 Shout out Harlem, man
 Shout out A$AP Rocky, man
@@ -83,4 +83,4 @@ Bum niggas wish they could make a garden shed
 But they sleeping on me man like their arm is dead
 I'm a wild nigga boy and you farmer bred, born
 You ain't animal, you are, corn, hahaha, yeah!
---->
+---
